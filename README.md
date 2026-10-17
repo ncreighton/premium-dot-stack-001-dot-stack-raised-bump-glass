@@ -1,0 +1,2 @@
+# premium-dot-stack-001-dot-stack-raised-bump-glass
+Tracking dot-stack bead projects feels chaotic without a system—lost inventory, duplicate designs, and no way to catalog your raised bump glass techniques. The Dot Stack &amp; Raised Bump Glass Bead Craft Lab solves this with a purpose-built Notion workspace designed specifically for bead crafters.  This template transforms how you organize, design, an
